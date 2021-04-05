@@ -5,7 +5,7 @@
 	Possibly also application for space for astronauts within range of other astronauts as a form of direct notification.
 	
 	
-	after reading the news of "Lil Nas X - Satan Shoes, and the recent Joke of Lil Nas X giving God a lapdance from SNL"
+	thought of this  04-04-2021 as a real world improvement to sneakers after reading the news of "Lil Nas X - Satan Shoes, and the recent Joke of Lil Nas X giving God a lapdance from SNL"
 	
 https://www.cbsnews.com/news/lil-nas-x-shoe-nike-restraining-order-lawsuit-mschf-satan/
 	
