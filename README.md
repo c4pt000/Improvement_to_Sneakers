@@ -9,3 +9,7 @@
 	
 https://www.cbsnews.com/news/lil-nas-x-shoe-nike-restraining-order-lawsuit-mschf-satan/
 	
+
+
+poor man's patent
+D.Weinberg
